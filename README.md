@@ -6,8 +6,6 @@ The 105 indirect proofs against god;
  
 > If evil cannot be destroyed and still exist, then god is not all powerful, therefore god cannot be god;
 
-or
-
 > If god is all powerful and can destroy evil but evil still exists, then god is evil;
 
 > If god is evil, then god is Satan;
